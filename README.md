@@ -2,18 +2,15 @@
 
 Email Me 👉 ✉️ **sakshimehla2020@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
-**VishalSharma99/VishalSharma99** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
 
 - 🔭 I’m currently working on various projects
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
+- 🌱 I’m currently learning to stand better...
+- 👯 I’m looking to collaborate on your projects
 - 🤔 I’m looking for help with blockchain
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
+- 💬 Ask me about Collaboration and support 
+- 📫 How to reach me: sakshimehla2020@gmail.com
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: I was born with a crayon in hand....Now holds my PC💻
 
 
 ## 🌐 Socials:
